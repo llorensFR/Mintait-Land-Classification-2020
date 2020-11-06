@@ -1,0 +1,1 @@
+# Mintait-Land-Classification-2020
